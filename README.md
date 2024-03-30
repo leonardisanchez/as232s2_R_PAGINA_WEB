@@ -1,1 +1,0 @@
-# as232s2_R_PAGINA_WEB
